@@ -1,0 +1,1 @@
+Thanks for checking out this new project. Here is a showcase of the experience I have with python. I am working consistently to get better. Please take a look and let's connect here and maybe collab in the future!
